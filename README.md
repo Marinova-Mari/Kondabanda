@@ -1,2 +1,0 @@
-# Kondabanda
-Mind Map
